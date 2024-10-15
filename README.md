@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, developing applications
 - 🌱 I’m currently learning Artificial Intelligence applications
 - 💞️ I’m looking to collaborate on small and fast projects
-- 📫 How to reach me jpree4455@gmail.com
+- 📫 How to reach me jpre4455@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like novels
 
